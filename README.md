@@ -1,1 +1,1 @@
-# amadatec
+AmadA Tecnology
